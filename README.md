@@ -9,11 +9,11 @@
 
 - 👯 I’m looking to collaborate on projects on Data Science and Programming.
 
-- 🤔 I’m looking for help with more advanced concepts.
+- 🤔 I’m looking for help with more advanced concepts about data.
 
 - 💬 Ask me about my learning growth in the World of Tech.
 
-- 📫 How to reach me: https://https://www.linkedin.com/in/sakeenat-adesina-27363822b
+- 📫 How to reach me: https://https://www.linkedin.com/in/sakeenaadesina
 
 - ⚡ Fun fact: I know it's kinda of silly, but I love smiling.
 
